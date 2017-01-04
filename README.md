@@ -4,6 +4,6 @@
 
 # [PlusTM](https://telegram.me/PlusTM)
 
-**نویستده**
+**نویسنده**
 
 [M.YG](https://telegram.me/SudoGP)
